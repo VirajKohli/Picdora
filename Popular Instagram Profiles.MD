@@ -29,3 +29,18 @@ Here you will be able to access all the popular instagram profiles in a better w
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/13704085_576578819180040_833192985_a.jpg" alt="teyana taylor"><br/>
 <a href="https://www.picdora.com/instagram/teyanataylor">teyana taylor instagram</a>
+
+<img src="https://scontent.cdninstagram.com/t51.2885-19/11410334_381471145390922_1102766550_a.jpg" alt="tia mowry"><br/>
+<a href="https://www.picdora.com/instagram/tiamowry">tia mowry instagram</a>
+
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/11353034_484423315047183_1626254132_a.jpg" alt="">angela simmons<br/>
+<a href="https://www.picdora.com/instagram/angelasimmons">angela simmons instagram</a>
+
+<img src="https://scontent.cdninstagram.com/t51.2885-19/11850309_1674349799447611_206178162_a.jpg" alt="the rock"><br/>
+<a href="https://www.picdora.com/instagram/therock">the rock instagram</a>
+
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/13694337_1256367061091227_2064731035_a.jpg" alt="k michelle"><br/>
+<a href="https://www.picdora.com/instagram/kmichellemusic">k michelle instagram</a>
+
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14287949_1619218775042561_866657958_a.jpg" alt="french montana"><br/>
+<a href="https://www.picdora.com/instagram/frenchmontana">french montana instagram</a>
