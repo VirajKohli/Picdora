@@ -33,7 +33,7 @@ Here you will be able to access all the popular instagram profiles in a better w
 <img src="https://scontent.cdninstagram.com/t51.2885-19/11410334_381471145390922_1102766550_a.jpg" alt="tia mowry"><br/>
 <a href="https://www.picdora.com/instagram/tiamowry">tia mowry instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/11353034_484423315047183_1626254132_a.jpg" alt="">angela simmons<br/>
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/11353034_484423315047183_1626254132_a.jpg" alt="angela simmons"><br/>
 <a href="https://www.picdora.com/instagram/angelasimmons">angela simmons instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/11850309_1674349799447611_206178162_a.jpg" alt="the rock"><br/>
