@@ -15,10 +15,10 @@ Here you will find awesome Picdora Profiles.
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/13166719_540674272806979_1392600920_a.jpg" alt="justin timberlake"><br/>
 <a href="https://www.picdora.com/instagram/justintimberlake">justin timberlake instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/10843852_1384607295164998_359672544_a.jpg" alt="lauren conrad">
+<img src="https://scontent.cdninstagram.com/t51.2885-19/10843852_1384607295164998_359672544_a.jpg" alt="lauren conrad"><br/>
 <a href="https://www.picdora.com/instagram/laurenconrad">lauren conrad instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/928861_1666286243586838_1706537840_a.jpg" alt="anna kendrick">
+<img src="https://scontent.cdninstagram.com/t51.2885-19/928861_1666286243586838_1706537840_a.jpg" alt="anna kendrick"><br/>
 <a href="https://www.picdora.com/instagram/annakendrick47">anna kendrick instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14026563_1575077182796854_2084899842_a.jpg" alt="safaree samuels"><br/>
