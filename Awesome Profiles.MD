@@ -21,13 +21,13 @@ Here you will find awesome Picdora Profiles.
 <img src="https://scontent.cdninstagram.com/t51.2885-19/928861_1666286243586838_1706537840_a.jpg" alt="anna kendrick">
 <a href="https://www.picdora.com/instagram/annakendrick47">anna kendrick instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14026563_1575077182796854_2084899842_a.jpg" alt="safaree samuels">
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14026563_1575077182796854_2084899842_a.jpg" alt="safaree samuels"><br/>
 <a href="https://www.picdora.com/instagram/iamsafaree">safaree samuels instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14063642_177361842667279_438813300_a.jpg" alt="dakota johnson">
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14063642_177361842667279_438813300_a.jpg" alt="dakota johnson"><br/>
 <a href="https://www.picdora.com/instagram/dakotajohnson/">dakota johnson instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14027186_532416150286545_409987294_a.jpg" alt="cristiano ronaldo">
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14027186_532416150286545_409987294_a.jpg" alt="cristiano ronaldo"><br/>
 <a href="https://www.picdora.com/instagram/cristiano">cristiano ronaldo instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14350887_185547351879551_1860417547287920640_a.jpg" alt="giuliana rancic"><br/>
@@ -41,6 +41,6 @@ Here you will find awesome Picdora Profiles.
 
 <img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/13392687_1730871013851394_1370483274_n.jpg?ig_cache_key=MTI3MzQxNTI2MDUyNDc1OTU3Ng%3D%3D.2" alt="laura govan"><br/>
 <a href="https://www.picdora.com/instagram/lauramgovan">laura govan instagram</a>
-
-<img src="https://scontent.cdninstagram.com/t51.2885-19/11429493_1442784749361197_1758842635_a.jpg" alt="james franco">
+<br/>
+<img src="https://scontent.cdninstagram.com/t51.2885-19/11429493_1442784749361197_1758842635_a.jpg" alt="james franco"><br/>
 <a href="https://www.picdora.com/instagram/jamesfrancotv">james franco instagram</a>
