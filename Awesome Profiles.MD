@@ -1,6 +1,6 @@
 Here you will find awesome Picdora Profiles.
 
-<img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/14156411_604493309737398_467863041_n.jpg?ig_cache_key=MTM0Mjk5MTI1OTYxODQ5NTUzMw%3D%3D.2" alt="pia mia">
+<img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/14156411_604493309737398_467863041_n.jpg?ig_cache_key=MTM0Mjk5MTI1OTYxODQ5NTUzMw%3D%3D.2" alt="pia mia"><br/>
 <a href="https://www.picdora.com/instagram/princesspiamia">pia mia instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/13597612_1762999113981315_58835042_a.jpg" alt="dj khaled">
@@ -30,16 +30,16 @@ Here you will find awesome Picdora Profiles.
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14027186_532416150286545_409987294_a.jpg" alt="cristiano ronaldo">
 <a href="https://www.picdora.com/instagram/cristiano">cristiano ronaldo instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14350887_185547351879551_1860417547287920640_a.jpg" alt="giuliana rancic">
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14350887_185547351879551_1860417547287920640_a.jpg" alt="giuliana rancic"><br/>
 <a href="https://www.picdora.com/instagram/giulianarancic">giuliana rancic instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/14448224_1781591205449469_3001228030099062784_n.jpg?ig_cache_key=MTM0NzUzNjM4OTcyNTk5OTIzMA%3D%3D.2" alt="victoria justice">
+<img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/14448224_1781591205449469_3001228030099062784_n.jpg?ig_cache_key=MTM0NzUzNjM4OTcyNTk5OTIzMA%3D%3D.2" alt="victoria justice"><br/>
 <a href="https://www.picdora.com/instagram/victoriajustice">victoria justice instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14295616_1763712127230648_216871635_a.jpg" alt="candice swanepoel">
 <a href="https://www.picdora.com/instagram/candiceswanarmy">candice swanepoel instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/13392687_1730871013851394_1370483274_n.jpg?ig_cache_key=MTI3MzQxNTI2MDUyNDc1OTU3Ng%3D%3D.2" alt="laura govan">
+<img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/13392687_1730871013851394_1370483274_n.jpg?ig_cache_key=MTI3MzQxNTI2MDUyNDc1OTU3Ng%3D%3D.2" alt="laura govan"><br/>
 <a href="https://www.picdora.com/instagram/lauramgovan">laura govan instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/11429493_1442784749361197_1758842635_a.jpg" alt="james franco">
