@@ -43,6 +43,6 @@ Here you can excess all the most stunning Picdora Profiles.
 <a href="https://www.picdora.com/instagram/michaelbjordan">michael b jordan instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/10693642_838591152840414_1667988614_a.jpg" alt="teresa giudice"><br/>
-<a href="">teresa giudice instagram</a>
+<a href="https://www.picdora.com/instagram/teresagiudice">teresa giudice instagram</a>
 
 
