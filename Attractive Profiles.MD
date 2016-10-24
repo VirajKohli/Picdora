@@ -36,7 +36,7 @@ Here you will find Attractive Collection of Profiles from Picdora.
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14134883_318485588503195_863080083_a.jpg" alt="gia giudice"><br />
 <a href="https://www.picdora.com/instagram/_giagiudice/">gia giudice instagram</a>
 
-<img src=https://scontent.cdninstagram.com/t51.2885-19/s320x320/12783366_191829084525344_1166098850_a.jpg"" alt="alexis texas"><br />
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/12783366_191829084525344_1166098850_a.jpg" alt="alexis texas"><br />
 <a href="https://www.picdora.com/instagram/whitegirlpoliticking">alexis texas instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/13266796_1327761410571823_613277293_n.jpg?ig_cache_key=MTI1MzE4MTUzOTI1ODEyOTcyOQ%3D%3D.2" alt="sage the gemini"><br />
