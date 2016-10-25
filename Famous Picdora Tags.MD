@@ -1,7 +1,7 @@
 Here you will find most famous Picdora Tags.
 
 <img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/12930897_252039655136187_267311527_n.jpg?ig_cache_key=MTIxNzY2NDA1Mzc3OTM5Mjk0Ng%3D%3D.2" alt="tjmaxx"><br />
-<a href="https://www.picdora.com/tag/tjmaxx">tjmaxxhttps://www.picdora.com/tag/tjmaxx</a>
+<a href="https://www.picdora.com/tag/tjmaxx">tjmaxx</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/12976440_947763218655510_409392355_n.jpg?ig_cache_key=MTIzODc3MjYyMzAyMjY3MTc3NA%3D%3D.2.l" alt="coffin nails"><br />
 <a href="https://www.picdora.com/tag/coffin%20nails">coffin nails</a>
