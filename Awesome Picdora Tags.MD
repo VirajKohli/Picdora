@@ -12,5 +12,4 @@ Here you will find the most awesome Picdora Tags.
 <img src="https://scontent.cdninstagram.com/t51.2885-15/e15/10632028_549045415225039_113984076_n.jpg?ig_cache_key=ODA3OTQxMDcwNzIxMzMyMDI2.2" alt="2"><br />
 <a href="https://www.picdora.com/tag/2">2</a>
 
-<img src="" alt="">
-<a href=""></a>
+
