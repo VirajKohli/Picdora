@@ -30,7 +30,7 @@ Here you will find most well known profiles of Instagram. Using Picdora, Explore
 <img src="https://scontent.cdninstagram.com/t51.2885-15/s640x640/sh0.08/e35/13102538_1059887704098734_1778394537_n.jpg?ig_cache_key=MTI0MDg4MDk3NTQ0MTc0MzU1OQ%3D%3D.2.l" alt="deandre jordan"><br />
 <a href="https://www.picdora.com/instagram/deandrejordan6">deandre jordan instagram</a>
 
-<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14156689_1674148796237692_1426930077_a.jpg alt="mia"><br />
+<img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/14156689_1674148796237692_1426930077_a.jpg" alt="mia"><br />
 <a href="https://www.picdora.com/instagram/miamatangi">mia instagram</a>
 
 <img src="https://scontent.cdninstagram.com/t51.2885-19/s320x320/12534059_1706266756264028_1755207710_a.jpg" alt="dj whoo kid"><br />
